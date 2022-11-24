@@ -5,7 +5,7 @@ https://docs.google.com/spreadsheets/d/19B6aMiEbMYgZ-F_-Pt9sbbctuz_NYtAll0XPlrV5
 لیست هشتگها:  
 https://github.com/rmedia1401/documentary/blob/main/hashtags.md
 
-پروژه ایمیل ها:  
+پروژه ایمیل ها(به افراد و نهادهای بین‌المللی):  
 در حال آماده سازی صفحه اختصاصی
 
 
